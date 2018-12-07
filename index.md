@@ -1,4 +1,4 @@
-[Home](index.md) | [Events](events.md) | [About](about.md) | [FAQ](faq.md) | [Restrictions](restrictions.md) | [Board of Trustees](trustees.md) | [Contact](mailto:benningtonparkhoa.org@gmail.com)
+[Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Restrictions](restrictions.md) | [Board of Trustees](trustees.md) | [Contact](mailto:benningtonparkhoa.org@gmail.com)
 
 # Notices/Updates/Upcoming Events
 
