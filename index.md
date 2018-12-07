@@ -1,3 +1,7 @@
+[Home](index.md) [Contact](contact.md)
+
+This is home page!
+
 [Cool Stuff!](#cool-stuff)
 [Yoooo](#yoooo)
 
