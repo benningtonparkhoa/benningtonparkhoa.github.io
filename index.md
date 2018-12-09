@@ -7,3 +7,5 @@
 Food will be provided starting at 5pm. This year's menu will include pulled pork, burgers, and hot dogs. Yummy cookies for a dessert. Soda, juice boxes, and water will also be provided. You are more than welcome to bring your own cooler with adult beverages if you wish!
 
 ## Reminder:  Speed Limit is 25 MPH in the Subdivision
+
+![An Image of Bennignton parksfd](bennington-image.png)
