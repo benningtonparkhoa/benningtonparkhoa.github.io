@@ -1,8 +1,10 @@
 [Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Restrictions](restrictions.md) | [Board of Trustees](trustees.md) | [Contact](mailto:benningtonparkhoa.org@gmail.com)
 
+![Image of Entrance Sign](bp entrance photo.png)
+
+
 # Notices/Updates/Upcoming Events
 
-![An Image of Bennignton parksfd](bennington-image.png)
 
 ## Events: - Annual Subdivision Party - Sunday
 
