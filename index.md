@@ -6,8 +6,10 @@
 # Notices/Updates/Upcoming Events
 
 
-## Events: - Annual Subdivision Party - Sunday
+## Events: - Annual Bennington Bash
 
-Food will be provided starting at 5pm. This year's menu will include pulled pork, burgers, and hot dogs. Yummy cookies for a dessert. Soda, juice boxes, and water will also be provided. You are more than welcome to bring your own cooler with adult beverages if you wish!
+Each year, near the end of summer, Bennington Park hosts a family friendly party for all the homeowners on Bennett Court, Bridgetowne Court and Brownshire Lane.
 
-## Reminder:  Speed Limit is 25 MPH in the Subdivision
+For more details about our Bennington Bash, click on [events]
+
+## Reminder:  Speed Limit is 30 MPH in the Subdivision
