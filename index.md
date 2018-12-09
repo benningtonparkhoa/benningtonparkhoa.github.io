@@ -6,7 +6,7 @@
 # Notices/Updates/Upcoming Events
 
 
-## Events:    Annual Bennington Bash
+## Events:   Annual Bennington Bash
 
 Each year, near the end of summer, Bennington Park hosts a family friendly party for all the homeowners on Bennett Court, Bridgetowne Court and Brownshire Lane.
 
