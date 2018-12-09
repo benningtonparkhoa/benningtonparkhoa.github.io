@@ -1,6 +1,6 @@
-          [Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Restrictions](restrictions.md) | [Board of Trustees](trustees.md) | [Contact](mailto:benningtonparkhoa.org@gmail.com)
+[Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Restrictions](restrictions.md) | [Board of Trustees](trustees.md) | [Contact](mailto:benningtonparkhoa.org@gmail.com)
 
-![Image of Entrance Signfp](BP entrance photo.png)
+![Image of Entrance Sign](BP entrance photo.png)
 
 
 # Notices/Updates/Upcoming Events
