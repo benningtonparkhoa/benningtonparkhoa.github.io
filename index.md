@@ -10,6 +10,6 @@
 
 Each year, near the end of summer, Bennington Park hosts a family friendly party for all the homeowners on Bennett Court, Bridgetowne Court and Brownshire Lane.
 
-For more details about our Bennington Bash, click on [events]
+For more details about our Bennington Bash, click on [events](events.md)
 
 ## Reminder:  Speed Limit is 30 MPH in the Subdivision
