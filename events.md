@@ -4,7 +4,7 @@
 
 Each year, near the end of summer, Bennington Park hosts a family friendly party for all the homeowners on Bennett Court, Bridgetowne Court and Brownshire Lane.
 
-For more details: [Bennington Bash](Bennington Bash2018 invite web page.docx)
+For more details: [Bennington Bash](Bennington Bash2018 invite web page.pdf)
 
 ## Events:   Annual Members Meeting
 
