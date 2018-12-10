@@ -1,2 +1,5 @@
 theme: jekyll-theme-cayman
 title: Bennington Park Subdivision
+
+plugins:
+  - jekyll-seo-tag
