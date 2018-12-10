@@ -2,10 +2,10 @@
 
 ## The following key Bennington Park documents are recorded with the County of Peoria:
 
-![Plat of Subdivision](BP Plat.pdf)
+[Plat of Subdivision](BP Plat.pdf)
 
-![Declaration of Restrictions](BP Restrictions.pdf)
+[Declaration of Restrictions](BP Restrictions.pdf)
 
-![Creation of HOA](BP Notice -HOA.pdf)
+[Creation of HOA](BP Notice -HOA.pdf)
 
-![First Amendment](BP First Amend.pdf)
+[First Amendment](BP First Amend.pdf)
