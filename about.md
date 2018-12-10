@@ -13,4 +13,4 @@ Bennington Park, please send an email to: [benningtonparkhoa.org@gmail.com](mail
 
 Link to Google Map: [Bennington Park](https://www.google.com/maps/@40.831032,-89.6065676,435m/data=!3m1!1e3?hl=en&authuser=0)
 
-![Image of Plat](Snip of Plat.jpg)
+![Image of Plat](Snip of Plat.JPG)
