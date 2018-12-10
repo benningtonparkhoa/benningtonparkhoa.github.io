@@ -12,3 +12,5 @@ If you are a resident or a prospective homebuyer and are interested in knowing m
 Bennington Park, please send an email to: [benningtonparkhoa.org@gmail.com](mailto:benningtonparkhoa.org@gmail.com)
 
 Link to Google Map: [Bennington Park](https://www.google.com/maps/@40.831032,-89.6065676,435m/data=!3m1!1e3?hl=en&authuser=0)
+
+![Snip of Plat](Snip of Plat.jpg)
