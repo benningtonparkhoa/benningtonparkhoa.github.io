@@ -10,7 +10,7 @@ For more details: [Bennington Bash](Bennington Bash2018 invite web page.docx)
 
 Each year in January, Bennington Park holds an annual members meeting.
 
-# What:  Bennington Park Annual Members Meeting
-When:  January 16, 2019
-Time:  6:00 pm – 7:45 pm
-Where:  Peoria Public Library Northpoint Branch (behind Menards on Allen Rd)
+Bennington Park 2019 Annual Members Meeting
+January 16, 2019
+6:00 pm – 7:45 pm
+Peoria Public Library Northpoint Branch (behind Menards on Allen Rd)
