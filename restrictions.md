@@ -1,6 +1,6 @@
 [Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Restrictions](restrictions.md) | [Board of Trustees](trustees.md) | [Contact](contact.md)
 
-## The following key documents are recorded with the County of Peoria:
+## The following Bennington Park documents are recorded with the County of Peoria:
 
 ![Plat of Subdivision](BP Plat.pdf)
 
