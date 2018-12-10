@@ -2,7 +2,7 @@
 
 ## About Bennington Park
 
-Bennington Park is a neighborhood community comprised of 32 single family homes located in the north area of Peoria, Illinois.  More specifically, the community is East of Knoxville Avenue (Rt 40) just off of Hickory Grove Road, and is about 2 miles North of Rt 6.   Bennington Park is just outside the boundary of the City of Peoria, and is within the Dunlap Community Unit School District 323 and Illinois Valley School District 321.  
+Bennington Park is a neighborhood comprised of 32 single family homes located in the North area of Peoria, Illinois.  More specifically, the community is East of Knoxville Avenue (Rt 40) just off of Hickory Grove Road, and is about 2 miles North of Rt 6.   Bennington Park is just outside the boundary of the City of Peoria, and is within the Dunlap Community Unit School District 323 and Illinois Valley School District 321.  
 
 The neighborhood consists entirely of single family detached homes of minimum size 2400 ft2 for single level and 2800 ft2 for more than one level. All lots are generously sized and many have wooded rear boundaries, helping to maintain an open, park-like look and feel.   The neighborhood enjoys close proximity to several shopping centers, restaurants, and large and small retail establishments.  It is also within 2.5 miles of the Rock Island Trail, and has quick access to I-474 / I-74 via Route 6.  
 
