@@ -109,7 +109,7 @@ a {
   color: $header-heading-color;
   text-align: center;
   background-color: $header-bg-color;
-  background-image: linear-gradient(120deg, $header-bg-color-secondary, $header-bg-color);
+  background-image: url("BP entrance photo.jpg") 
 
   @include large {
     padding: 5rem 6rem;
@@ -342,15 +342,15 @@ a {
   border-top: solid 1px $hr-border-color;
 
   @include large {
-    font-size: 1rem;
+    font-size: 0.7rem;
   }
 
   @include medium {
-    font-size: 1rem;
+    font-size: 0.7rem;
   }
 
   @include small {
-    font-size: 0.9rem;
+    font-size: 0.7rem;
   }
 }
 
