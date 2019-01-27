@@ -3,7 +3,8 @@
 # Board of Trustees
 
 
+## Tim Bertschy
 ## Brian Jensen
-## Gretchen Heiar
 ## Dena Keenan
+## Keith Troisi
 ## Ralph Velazquez
