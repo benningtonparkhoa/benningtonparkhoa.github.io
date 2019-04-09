@@ -22,10 +22,6 @@ Peoria Public Library Northpoint Branch (behind Menards on Allen Rd)
 
 The Board of Trustees holds meetings at least quarterly.  
 
-Tentative Board Schedule for 2019:
-January 27
-April 16
-July 17
-October16
+The tentative meeting schedule for 2019 is January 27, April 16, July 17 and October 16.
 
-If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date and time.
+Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date and time.
