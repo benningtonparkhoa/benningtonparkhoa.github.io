@@ -4,6 +4,8 @@
 
 Each year, near the end of summer, Bennington Park hosts a family friendly party for all the homeowners on Bennett Court, Bridgetowne Court and Brownshire Lane.
 
+This years Bennington Bash will be held on September 29, 2019.
+
 For more details: [Bennington Bash](Bennington Bash2018 invite web page.pdf)
 
 ## Events:   Annual Members Meeting
@@ -24,4 +26,4 @@ The Board of Trustees holds meetings at least quarterly.
 
 The tentative meeting schedule for 2019 is January 27, April 16, July 17 and October 16.
 
-Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date and time.
+Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
