@@ -2,3 +2,4 @@
 
 ## Contact Information:  [benningtonparkhoa.org@gmail.com](mailto:benningtonparkhoa.org@gmail.com)
 
+This will forward your message to the Board of Trustees.
