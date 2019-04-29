@@ -1,6 +1,6 @@
 [Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Documents](documents.md) | [Board of Trustees](trustees.md) | [Contact](contact.md)
 
-![Image of Entrance Sign](BP entrance photo.jpg)
+![Image of Entrance Sign](Entrance in spring 2019.jpg)
 
 
 # Notices/Updates/Upcoming Events
