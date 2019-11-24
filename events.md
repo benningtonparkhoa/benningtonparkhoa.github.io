@@ -14,16 +14,16 @@ Each year in January, Bennington Park holds an annual members meeting.
 
 Bennington Park 2019 Annual Members Meeting
 
-January 16, 2019
+January 15, 2020
 
-6:00 pm – 7:45 pm
+6:30 pm – 8:00 pm
 
-Peoria Public Library Northpoint Branch (behind Menards on Allen Rd)
+Northminster Presbyterian Church -Room 304, 10720 N Knoxville Ave, Peoria
 
 ## Quarterly Board Meetings
 
 The Board of Trustees holds meetings at least quarterly.  Let us know if you plan to attend and if there is something you would like included on the agenda.
 
-The tentative meeting schedule for 2019 is January 27, April 16, July 17 and October 24.
+The tentative meeting schedule for 2020 is January 29, April 22, July 22 and October 21.
 
 Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
