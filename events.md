@@ -12,7 +12,7 @@ For more details: [Bennington Bash](Bennington Bash2018 invite web page.pdf)
 
 Each year in January, Bennington Park holds an annual members meeting.
 
-Bennington Park 2019 Annual Members Meeting
+Bennington Park 2020 Annual Members Meeting
 
 January 15, 2020
 
