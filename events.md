@@ -24,6 +24,6 @@ Northminster Presbyterian Church -Room 304, 10720 N Knoxville Ave, Peoria
 
 The Board of Trustees holds meetings at least quarterly.  Let us know if you plan to attend and if there is something you would like included on the agenda.
 
-The tentative meeting schedule for 2020 is January 29, April 22, July 22 and October 21.
+The tentative meeting schedule for 2020 is February 18, April 22, July 22 and October 21.
 
 Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
