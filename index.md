@@ -14,6 +14,6 @@ For more details about our Bennington Bash, click on [events](events.md)
 
 ## Notice:  Medina Township will post the schedule on the stop sign for leaf pick up in the fall and spring. Rake your leaves to the gutter for pick up.
 
-## Notice:  Your Board has spoken with Medina Township about sidewalk and gutter repairs for 2019.
+## Notice:  Your Board has spoken with Medina Township about sidewalk and gutter repairs for 2020.
 
 ## Reminder:  Speed Limit is 30 MPH in the Subdivision
