@@ -16,4 +16,4 @@ For more details about our Bennington Bash, click on [events](events.md)
 
 ## Notice:  Your Board has spoken with Medina Township about sidewalk and gutter repairs for 2020.
 
-## Reminder:  Speed Limit is 30 MPH in the Subdivision
+## Reminder:  Speed Limit is 30 MPH in the Subdivision. Please be aware of children and pets when driving in the neighborhood.
