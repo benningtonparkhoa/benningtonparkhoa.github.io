@@ -4,7 +4,7 @@
 
 Each year, near the end of summer, Bennington Park hosts a family friendly party for all the homeowners on Bennett Court, Bridgetowne Court and Brownshire Lane.
 
-This years Bennington Bash will be held on September 27, 2020.
+Unfortunately, the 2020 Bennington Bash has been cancelled due to COVID-19 health concerns. We look forward to hosting our next Bennington Bash in the fall of 2021.
 
 ## Annual Members Meeting
 
