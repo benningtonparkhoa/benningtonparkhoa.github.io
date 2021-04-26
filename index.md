@@ -1,6 +1,6 @@
 [Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Documents](documents.md) | [Board of Trustees](trustees.md) | [Contact](contact.md)
 
-![Image of Entrance Sign](Entrance in spring 2019.jpg)
+![Image of Entrance Sign](HolidaySign_2020.jpg)
 Photography by http://www.amykphoto.com/
 
 # Notices, Updates, and Upcoming Events
