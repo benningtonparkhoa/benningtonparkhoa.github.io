@@ -3,7 +3,7 @@
 # Board of Trustees
 
 
-## Tim Bertschy
+## Michael Gibbons, MD (Mike)
 ## Brian Jensen
 ## Dena Keenan
 ## Amy Kordonowy
