@@ -18,7 +18,7 @@ January 20, 2021
 
 ## Quarterly Board Meetings
 
-The Board of Trustees holds meetings at least quarterly.  Let us know if you plan to attend and if there is something you would like included on the agenda.
+The Board of Trustees holds meetings quarterly.  Let us know if you plan to attend and if there is something you would like included on the agenda.
 
 The tentative meeting schedule for remaining 2021 meetings is July 21st and October 20th.
 
