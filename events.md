@@ -4,8 +4,6 @@
 
 Each year, near the end of summer, Bennington Park hosts a family friendly party for all the homeowners on Bennett Court, Bridgetowne Court and Brownshire Lane.
 
-Unfortunately, the 2020 Bennington Bash has been cancelled due to COVID-19 health concerns. We look forward to hosting our next Bennington Bash in the fall of 2021.
-
 ## Annual Members Meeting
 
 Each year in January, Bennington Park holds an annual members meeting.
@@ -22,6 +20,6 @@ January 20, 2021
 
 The Board of Trustees holds meetings at least quarterly.  Let us know if you plan to attend and if there is something you would like included on the agenda.
 
-The tentative meeting schedule for 2020 is February 18, April 27, July 22 and October 21.
+The tentative meeting schedule for remaining 2021 meetings is July 21st and October 20th.
 
 Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
