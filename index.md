@@ -1,8 +1,6 @@
 [Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Documents](documents.md) | [Board of Trustees](trustees.md) | [Contact](contact.md)
 
-![Summer_Sign_Photo_AK_2021_1](https://user-images.githubusercontent.com/45678957/121732894-6576a680-cab8-11eb-8626-6a378f919fda.jpg)
-
-![Sign_Fall2021](https://github.com/benningtonparkhoa/benningtonparkhoa.github.io/blob/master/Sign_Fall2021.jpg)
+[Sign_Fall2021](https://github.com/benningtonparkhoa/benningtonparkhoa.github.io/blob/master/Sign_Fall2021.jpg)
 
 Photography by http://www.amykphoto.com/
 
