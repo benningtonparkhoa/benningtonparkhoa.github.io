@@ -8,7 +8,7 @@ Thank you to everyone who was able to stop by and participate in the event.
 
 The Dunlap Fire Truck and three Dunlap Firefighters showed families their truck, tools and spoke about the different types of emergencies that they are prepared to help with in our community. Just as they were about to show the children their protective clothing, firefighters received a call and within a minute they were speeding off to help with a local emergency. We thank all firefighters for their important role in our community and we feel lucky to have them so close to our neighborhood.  
 
-![FireTruck1.jpg](https://github.com/benningtonparkhoa/benningtonparkhoa.github.io/blob/master/FireTruck1.jpg)
+![FireTruck1.jpg](https://github.com/benningtonparkhoa/benningtonparkhoa.github.io/blob/master/FireTruck1.jpg?raw=true)
 
 ![FireTruck2.jpg](https://github.com/benningtonparkhoa/benningtonparkhoa.github.io/blob/master/FireTruck2.jpg)
 
