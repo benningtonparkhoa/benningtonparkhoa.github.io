@@ -1,5 +1,7 @@
 [Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Documents](documents.md) | [Board of Trustees](trustees.md) | [Contact](contact.md)
 
+# Bennington Park HOA
+
 ![Sign_Fall2021](https://github.com/benningtonparkhoa/benningtonparkhoa.github.io/blob/master/Sign_Fall2021.jpg)
 
 Photography by http://www.amykphoto.com/
