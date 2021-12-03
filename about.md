@@ -9,7 +9,7 @@ The neighborhood consists entirely of single family detached homes of minimum si
 The Homeowners Association exists for the general betterment of the neighborhood including the collection of dues, the administration of the financial records, the grounds keeping and maintenance of the common areas, and the scheduling and production of social events.  
 
 If you are a resident or a prospective homebuyer and are interested in knowing more about 
-Bennington Park, please send an email to: [benningtonparkhoa.org@gmail.com](mailto:benningtonparkhoa.org@gmail.com)
+Bennington Park, please send an email to: [benningtonparkhoa@gmail.com](mailto:benningtonparkhoa@gmail.com)
 
 Link to Google Maps: [Bennington Park](https://www.google.com/maps/@40.831032,-89.6065676,435m/data=!3m1!1e3?hl=en&authuser=0)
 
