@@ -4,8 +4,8 @@
 
 
 ## Michael Gibbons, MD (Mike)
-## Brian Jensen
-## Dena Keenan
+## Michael Marz (Mike)
+## David Houtz (Dave)
 ## Amy Kordonowy
 ## Keith Troisi
 
