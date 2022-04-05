@@ -24,6 +24,10 @@ Date, Time, and Location for meeting in Januray 2022 will be finalized soon - de
 
 The Board of Trustees holds meetings quarterly.  Let us know if you plan to attend and if there is something you would like included on the agenda.
 
-The meeting schedule for 2022 is being reviewed and will be posted here when finalized.
+The meeting schedule for 2022 is:
+
+  Wednesday, April 27th: 6:00 to 7:00 pm
+  Sunday, July 10th, 6:00 to 7:00 pm
+  Sunday, October 2nd, 6:00 to 7:00 pm
 
 Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
