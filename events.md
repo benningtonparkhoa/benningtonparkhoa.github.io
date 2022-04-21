@@ -27,9 +27,15 @@ The Board of Trustees holds meetings quarterly.  Let us know if you plan to atte
 The meeting schedule for 2022 is:
 
   Wednesday, April 27th: 6-7pm
+  Proposed Agenda (Posted April 21st):
+- Treasurer's Report
+- Review of 1112 W Bennett Ct fence landscape coverage
+- Update on Medina Township planned 2022 work
+- Review state of neighborhood damages from Xfinity contractor work
+- Formalize subcommittee(s) for proposed changes/updates to Declaration of Restrictions
   
-  Sunday, July 10th: 6-7pm
+Sunday, July 10th: 6-7pm
   
-  Sunday, October 2nd: 6-7pm
+Sunday, October 2nd: 6-7pm
 
 Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
