@@ -29,13 +29,14 @@ The meeting schedule for 2022 is:
 Wednesday, April 27th: 6-7pm
   
 Sunday, July 10th: 6:30-7:30pm
-  Proposed Agend (Posted July 9th):
-  Treasurer's Report
-  Sign Area update - cost estimate of materials
-  Bennington Bash date and event review
-  Continue discussion to finalize scope for subcommittee work
-  Medina Infrastructure Update
-  Open Discussion (if time permits)
+ 
+ Proposed Agend (Posted July 9th):
+  - Treasurer's Report
+  - Sign Area update - cost estimate of materials
+  - Bennington Bash date and event review
+  - Continue discussion to finalize scope for subcommittee work
+  - Medina Infrastructure Update
+  - Open Discussion (if time permits)
   
 Sunday, October 2nd: 6-7pm
 
