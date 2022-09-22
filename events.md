@@ -24,20 +24,10 @@ Date, Time, and Location for meeting in Januray 2022 will be finalized soon - de
 
 The Board of Trustees holds meetings quarterly.  Let us know if you plan to attend and if there is something you would like included on the agenda.
 
-The meeting schedule for 2022 is:
+The meeting schedule for the remainder of 2022 is:
 
-Wednesday, April 27th: 6-7pm
-  
-Sunday, July 10th: 6:30-7:30pm
- 
- Proposed Agend (Posted July 9th):
-  - Treasurer's Report
-  - Sign Area update - cost estimate of materials
-  - Bennington Bash date and event review
-  - Continue discussion to finalize scope for subcommittee work
-  - Medina Infrastructure Update
-  - Open Discussion (if time permits)
-  
-Sunday, October 2nd: 6-7pm
+Sunday, October 9th: 6:30-7:30pm
+
+ - Proposed Agend (TBD):
 
 Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
