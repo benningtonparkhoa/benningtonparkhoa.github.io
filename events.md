@@ -28,6 +28,6 @@ The meeting schedule for the remainder of 2022 is:
 
 Sunday, October 9th: 6:30-7:30pm
 
- - Proposed Agend (TBD):
+ - Proposed Agenda (TBD):
 
 Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
