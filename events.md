@@ -26,7 +26,9 @@ The Board of Trustees holds meetings quarterly.  Let us know if you plan to atte
 
 The meeting schedule for the remainder of 2022 is:
 
-Sunday, October 9th: 6:30-7:30pm
+Sunday, October 9th: 6:30-7:30pm 
+
+Members can attend in person at 1010 W. Bennett Ct. if interested.
 
 - Proposed Agenda:
  - Review of July 10th Board meeting minutes
