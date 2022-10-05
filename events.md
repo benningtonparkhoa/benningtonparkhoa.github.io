@@ -28,6 +28,14 @@ The meeting schedule for the remainder of 2022 is:
 
 Sunday, October 9th: 6:30-7:30pm
 
- - Proposed Agenda (TBD):
+- Proposed Agenda:
+ - Review of July 10th Board meeting minutes
+ - Treasurer's Report
+ - Social Committee Report
+ - Sign Area Update
+ - Review of Beaudry Tree House Plan
+ - January 2023 Annual Meeting planning
+ - Continuation of Subcommittee Scope
+ - Open Discussion (if time allows)
 
 Please note that dates regularly change to accomodate Trustee schedules.  If you would like to attend a Board meeting, be sure to check with one of the Trustees to confirm the date.
