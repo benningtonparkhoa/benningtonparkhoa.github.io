@@ -1,6 +1,6 @@
 [Home](index.md) | [About](about.md) | [Events](events.md) | [FAQ](faq.md) | [Documents](documents.md) | [Board of Trustees](trustees.md) | [Contact](contact.md)
 
-![Sign_Fall2021](https://github.com/benningtonparkhoa/benningtonparkhoa.github.io/blob/master/Sign_Fall2021.jpg?raw=true)
+![HolidaySign_2020.jpg](https://github.com/benningtonparkhoa/benningtonparkhoa.github.io/blob/master/HolidaySign_2020.jpg?raw=true)
 
 Photography by http://www.amykphoto.com/
 
